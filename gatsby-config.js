@@ -8,10 +8,10 @@
 
 module.exports = {
   siteMetadata: {
-    title: 'Mẹo hay Con Gà',
-    siteUrl: 'https://congacuctac.site/',
+    title: 'Kỹ Thuật Cuộc Sống',
+    siteUrl: 'https://appstore1.info/',
     rssFeedTitle: 'meovatthuongngay',
-    rssFeedDescription: 'Mẹo hay Con Gà',
+    rssFeedDescription: 'Kỹ Thuật Cuộc Sống',
   },
   mapping: {
     'MarkdownRemark.frontmatter.author': 'AuthorYaml',

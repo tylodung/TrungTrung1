@@ -87,7 +87,7 @@ const Header = ({location}) => (
                 border: 0,
               },
             }}>
-            Mẹo hay Con Gà
+            Kỹ Thuật Cuộc Sống
           </span>
         </Link>
 
@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://congacuctac.site/"
+            href="https://appstore1.info//"
             target="_blank"
             rel="noopener">
             Bakadono {version}
