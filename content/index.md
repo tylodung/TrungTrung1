@@ -1,6 +1,6 @@
 ---
 layout: hero
-title: Lê Kha & Mẹo Hay Con Gà
+title: Lê Kha & Kỹ Thuật Cuộc Sống
 id: home
 ---
 
@@ -8,7 +8,7 @@ id: home
   <div class="marketing-row">
     <div class="marketing-col">
       <h3>Bạn Sẽ Rất Cần Những Mẹo Vặt</h3>
-      <p>Đến Với Mẹo Hay Con Gà Bạn Sẽ Có Những Cách Khắc Phục Những Sự Cố Ngoài Mong Muốn Trong Cuộc Sống . Hãy Để Mẹo Hay Con Gà Giúp Bạn Một Tay Nhé. </p>
+      <p>Đến Với Kỹ Thuật Cuộc Sống Bạn Sẽ Có Những Cách Khắc Phục Những Sự Cố Ngoài Mong Muốn Trong Cuộc Sống . Hãy Để Kỹ Thuật Cuộc Sống Giúp Bạn Một Tay Nhé. </p>
     </div>
     <div class="marketing-col">
       <h3>Thư Ngỏ</h3>
@@ -19,7 +19,7 @@ Dưới đây là một số mẹo nhỏ giúp bạn giải quyết những vấ
     </div>
     <div class="marketing-col">
       <h3>Lợi Ích Vào Cuộc Sống</h3>
-      <p>Luôn Cho Bạn Các Giải Pháp Và Giúp Bạn Có Được Nhiều Kiến Thức , Cuộc Sống Bạn Sẽ Vô Cùng Thoải Mái Và Hạnh Phúc Khi Áp Dụng Những kiến thức này vào trong cuộc sống , Mẹo Hay Con Gà Luôn Đồng Hành Cùng Bạn. </p>
+      <p>Luôn Cho Bạn Các Giải Pháp Và Giúp Bạn Có Được Nhiều Kiến Thức , Cuộc Sống Bạn Sẽ Vô Cùng Thoải Mái Và Hạnh Phúc Khi Áp Dụng Những kiến thức này vào trong cuộc sống , Kỹ Thuật Cuộc Sống Luôn Đồng Hành Cùng Bạn. </p>
     </div>
   </div>
 </section>
