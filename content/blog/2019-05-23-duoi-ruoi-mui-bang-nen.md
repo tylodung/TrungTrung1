@@ -2,7 +2,8 @@
 title: Cách đuổi ruồi, muỗi sạch bách không còn một con trong nhà chỉ với một cây nến
 author: [lekha]
 ---
-*Không cần mua các loại thuốc diệt muỗi tốn tiền độc hại, bạn vẫn có thể tự chế đồ đuổi muỗi đơn giản từ một cây nến.*
+Không cần mua các loại thuốc diệt muỗi tốn tiền độc hại, bạn vẫn có thể tự chế đồ đuổi muỗi đơn giản từ một cây nến.
+
 Ruồi, muỗi là loài côn trùng không ai ưa bởi những tác hại mà chúng gây ra cho con người. Không chỉ vậy, loài vật này còn xuất hiện ở khắp mọi nơi và sinh sản rất nhanh mà không thể tiêu diệt một cách triệt để.
 
 Hiện nay, người ta dùng nhiều phương pháp để đuổi ruồi, muỗi như dùng bình xịt, phun thuốc muỗi quanh nhà, vườn, đốt nhang đuổi muỗi,... Những cách này tuy có thể đuổi ruồi, muỗi trong một thời gian nhất định nhưng đều chứa nhiều hóa chất không tốt cho sức khỏe con người, nhất là những gia đình có trẻ nhỏ.
