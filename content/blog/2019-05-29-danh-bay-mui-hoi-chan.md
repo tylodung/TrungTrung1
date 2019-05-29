@@ -2,12 +2,12 @@
 title: Mẹo đánh bay mùi hôi chân trong một nốt nhạc
 author: [lekha]
 ---
-**Bệnh đổ mồ hôi chân gây bốc mùi xảy ra khá phổ biến, đặc biệt là ở nam giới. Làm cách nào để khắc phục tình trạng này? Mời bạn thử qua các mẹo vặt sau.**
+Bệnh đổ mồ hôi chân gây bốc mùi xảy ra khá phổ biến, đặc biệt là ở nam giới. Làm cách nào để khắc phục tình trạng này? Mời bạn thử qua các mẹo vặt sau.
 
 
-*Theo các bác sĩ, trong mồ hôi có chứa muối, axit lactic kèm mùi khó chịu. Khi ủ kín chân trong môi trường ẩm, chân đi giày sẽ sinh ra số lượng lớn các vi khuẩn, chúng nhanh chóng sinh sôi và tạo ra mùi nồng nặc.*
+Theo các bác sĩ, trong mồ hôi có chứa muối, axit lactic kèm mùi khó chịu. Khi ủ kín chân trong môi trường ẩm, chân đi giày sẽ sinh ra số lượng lớn các vi khuẩn, chúng nhanh chóng sinh sôi và tạo ra mùi nồng nặc.
 
-Mẹo vặt đơn giản loại bỏ mùi mồ hôi chân
+**Mẹo vặt đơn giản loại bỏ mùi mồ hôi chân**
 
 1. Ngâm chân của bạn trong nước nóng 50 đến 60 độ khoảng 15 phút, mỗi ngày 1 đến 2 lần, giảm mùi hôi chân và hạn chế chứng ra mồ hôi.
 
@@ -15,7 +15,6 @@ Mẹo vặt đơn giản loại bỏ mùi mồ hôi chân
 
 3. Sử dụng khoảng 15gram bột sắn dây, 15ml rượu trắng, thêm 1 ít nước nấu thành hỗn hợp nước loãng để ngâm chân. Mỗi ngày nên ngâm chân 1 lần, liên tục trong khoảng 1 tuần thì bệnh ra mồ hôi chân sẽ giảm rõ rệt, hết hôi chân.
 
-mẹo vặt hay,mẹo vặt cuộc sống,mẹo vặt hàng ngày
 
 4. Mỗi đêm trước khi đi ngủ, dùng chút bông gòn hoặc mảnh vải nhỏ thấm vào rượu, sau đó cho vào trong giày dép, để qua đêm. Sáng hôm sau bỏ bông gòn ra và sử dụng đôi giày đó. Thực hiện mẹo vặt này vài tuần liên tục sẽ giảm hiện tượng giày bốc mùi.
 

@@ -2,11 +2,12 @@
 title: Cách chữa quần áo màu bị lem màu khác vừa nhanh gọn đơn giản không phải ai cũng biết
 author: [lekha]
 ---
-**Bạn vô tình giặt lẫn quần áo các màu cùng nhau khiến cho chiếc váy mới của bạn bị lem màu khác Đừng lo vì đã có cách chữa rất hay vừa nhanh gọn, mà nguyên liệu lại dễ kiếm.**
+
+Bạn vô tình giặt lẫn quần áo các màu cùng nhau khiến cho chiếc váy mới của bạn bị lem màu khác Đừng lo vì đã có cách chữa rất hay vừa nhanh gọn, mà nguyên liệu lại dễ kiếm.
 
 Có thể vì một chút sơ suất mà bạn vô tình cho nhầm món đồ yêu thích vào giặt chung với quần áo các màu khác khiến chúng lấm lem màu mà không biết cách tẩy sạch. Hãy bình tĩnh và thử áp dụng ngay những mẹo “chữa cháy” vết lem màu trên quần áo nhanh-gọn-rẻ này xem sao.
 
-#1. Sử dụng muối nở (baking soda)
+**1. Sử dụng muối nở (baking soda)**
 
 Bạn cần chuẩn bị:
 
@@ -25,7 +26,7 @@ Trộn lẫn nước rửa bát, bột baking soda và nước oxy già với nh
 
 Tiếp tục chà vết bẩn cho đến khi bạn thấy chúng mờ dần rồi để yên 15-20 phút, sau đó giặt và xả lại bình thường, bạn sẽ nhận được kết quả bất ngờ. Cách này có tác dụng hiệu quả nhất với chất liệu vải cotton.
 
-#2. Dùng chanh tươi
+**2. Dùng chanh tươi**
 
 Để đạt hiệu quả tốt nhất, bạn nên sử dụng kết hợp nước cốt chanh tươi với thuốc tím có thể tìm mua dễ dàng tại các hiệu thuốc lớn nhỏ. “Cặp đôi hoàn hảo” này sẽ nhanh chóng đánh bay vết lem màu trên quần áo của bạn
 
@@ -35,25 +36,21 @@ Tiếp tục chà vết bẩn cho đến khi bạn thấy chúng mờ dần rồ
 
 Pha loãng thuốc tím, bôi vào những vết lem màu, sau đó dùng nước cốt chanh tươi nhỏ lên chỗ đã bôi thuốc tím. Axit trong chanh lúc này sẽ oxy hóa màu, làm biến mất màu loang “khó ưa” mà không làm mất đi màu của quần áo bạn cần tẩy.
 
-#3. Sử dụng dấm ăn
+**3. Sử dụng dấm ăn**
 
 Giấm trắng được biết đến là một loại chất tẩy rửa vô cùng an toàn, lại chẳng khiến chị em tốn nhiều chi phí cho việc tẩy rửa các vết bẩn trên quần áo hay đồ đạc trong nhà. Với những vết bẩn hay vết màu cứng đầu ở cổ áo, tay áo, bạn có thể đổ trực tiếp dấm lên và chà sạch nhẹ nhàng bằng bàn chải.
 
 ![ten buc hinh](https://eva-img.24hstatic.com/upload/4-2017/images/2017-11-21/cach-chua-quan-ao-mau-bi-lem-mau-khac-vua-nhanh-vua-tiet-kiem-khong-phai-ai-cung-biet-3-1511272446-58-width600height375.jpg "ten buc hinh")
 
 
-cach chua quan ao mau bi lem mau khac vua nhanh gon don gian khong phai ai cung biet - 3
-
 Giấm trắng là một loại chất tẩy rửa vô cùng an toàn.
 
 Với quần áo bị lem màu ở nhiều bộ phận, hãy pha loãng giấm với nước lạnh và nước giặt hoặc bột giặt, sau đó ngâm quần áo trong vòng 30 phút rồi giặt lại như bình thường. Bạn đừng lo lắng về mùi chua của giấm, sau khi giặt và phơi khô dưới nắng quần áo sẽ thơm tho và trắng sạch mà chẳng vương vấn chút mùi khó chịu nào.
 
-#4. Dùng oxy già
+**4. Dùng oxy già**
 
 ![ten buc hinh](https://eva-img.24hstatic.com/upload/4-2017/images/2017-11-21/cach-chua-quan-ao-mau-bi-lem-mau-khac-vua-nhanh-vua-tiet-kiem-khong-phai-ai-cung-biet-4-1511272446-145-width550height585.jpg "ten buc hinh")
 
-
-cach chua quan ao mau bi lem mau khac vua nhanh gon don gian khong phai ai cung biet - 4
 
 Oxy già thường được sử dụng để rửa vết thương, vì thế dùng oxy già tẩy rửa quần áo vừa không gây hại cho da vừa hạn chế làm bạc màu vải.
 
@@ -63,8 +60,6 @@ Sau khi thấy những vết bẩn không còn, bạn giặt lại quần áo v�
 
 ![ten buc hinh](https://eva-img.24hstatic.com/upload/4-2017/images/2017-11-21/cach-chua-quan-ao-mau-bi-lem-mau-khac-vua-nhanh-vua-tiet-kiem-khong-phai-ai-cung-biet-5-1511272446-648-width600height414.jpg "ten buc hinh")
 
-
-cach chua quan ao mau bi lem mau khac vua nhanh gon don gian khong phai ai cung biet - 5
 
 Chị em cũng cần chú ý phân loại quần áo khác màu, không nên giặt quần áo ở nhiệt độ nước quá cao.
 
