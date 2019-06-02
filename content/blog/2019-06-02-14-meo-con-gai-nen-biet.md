@@ -5,7 +5,6 @@ author: [lekha]
 Với những mẹo vặt làm đẹp này, các cô gái sẽ rạng rỡ hơn mà không cần phải trang điểm cầu kỳ.
 
 **1.** Để cột tóc kiểu đuôi ngựa cao bồng bềnh và dày đẹp hơn, bạn hãy dùng 2 chiếc kẹp tăm ghim song song theo hướng từ trên xuống sẽ giúp đuôi tóc cao và dày, ấn tượng hơn rất nhiều. 
-mẹo vặt hay,mẹo vặt cuộc sống , mẹo vặt hàng ngày
 
 ![ten buc hinh](http://imgs.vietnamnet.vn/Images/2017/10/02/16/20171002162316-meo-vat-lam-dep-1.jpg "ten buc hinh")
 
@@ -38,7 +37,7 @@ mẹo vặt hay,mẹo vặt cuộc sống , mẹo vặt hàng ngày
 
 **13.** Dùng son môi thay phấn mắt: Trang điểm mắt thường rất tốn thời gian nhưng bạn lại muốn có đôi mắt bóng mờ quyến rũ, hãy tận dụng ngay thỏi son bóng của mình. Công dụng không khác biệt mà nhanh chóng và tiết kiệm được rất nhiều thời gian đấy nhé. 
 
-**14. **Dùng son môi giữ nếp cho lông mày, tóc: Nếu bạn luôn cảm thấy khó chịu với những sợi lông mày hay những sợi tóc con mới mọc bất trị không chịu mọc theo hàng lối thì hãy dùng chút son dưỡng không màu miết nhẹ nhàng, chúng sẽ ngoan ngoãn nằm im ngay. 
+**14.** Dùng son môi giữ nếp cho lông mày, tóc: Nếu bạn luôn cảm thấy khó chịu với những sợi lông mày hay những sợi tóc con mới mọc bất trị không chịu mọc theo hàng lối thì hãy dùng chút son dưỡng không màu miết nhẹ nhàng, chúng sẽ ngoan ngoãn nằm im ngay. 
 
 Trên đây là những mẹo vặt hay mà các bạn gái nên cho vào “cẩm nang làm đẹp” của mình.
 
