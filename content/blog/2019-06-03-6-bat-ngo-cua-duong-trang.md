@@ -1,5 +1,5 @@
 ---
-title: 6 công dụng không ngờ của đường trắng trong chăm sóc nhà cửa, vườn tược
+title: 6 công dụng không ngờ của đường trắng
 author: [lekha]
 ---
 Công dụng không ngờ của đường trắng trong chăm sóc nhà cửa, vườn tược mà các bạn nên áp dụng.
@@ -20,7 +20,6 @@ Bạn đã từng rơi vào tình trạng không thể nào rửa sạch tay dí
 
 Hỗn hợp gồm 3 muỗng cà phê đường, 2 muỗng giấm trắng, nước ấm sẽ giúp hoa trở nên tươi lâu hơn. Đường cung cấp dinh dưỡng và giấm hạn chế vi khuẩn sinh sôi, phát triển.
 
-![ten buc hinh](https://eva-img.24hstatic.com/upload/4-2017/images/2017-10-27/6-cong-dung-bat-ngo-cua-duong-trang-trong-cham-soc-nha-cua-vuon-tuoc-6-1421464593romanticfloralarrangement3-dbnf-142165-1509109672-width660height924.jpg "ten buc hinh")
 
 
 **4. Tẩy vết ố, bẩn trên quần áo**
