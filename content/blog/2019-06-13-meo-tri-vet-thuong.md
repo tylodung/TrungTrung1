@@ -4,6 +4,8 @@ author: [lekha]
 ---
 Các loại côn trùng như ong, kiến, muỗi... khi cắn sẽ gây cảm giác đau đớn, ngứa ngáy và khó chịu. Dưới đây là những mẹo vặt tự nhiên giúp chữa vết thương do côn trùng cắn, phù hợp với mọi làn da, kể cả trẻ em.
 
+![ten buc hinh](https://znews-photo.zadn.vn/w660/Uploaded/sgorvz/2015_11_13/con_trung_dot.jpg "ten buc hinh")
+
 **1. Chanh** 
 
 Chanh có thuộc tính gây tê và chống viêm giúp điều trị các bệnh về da bao gồm cả vết côn trùng cắn. Những phương pháp mà bạn có thể dùng chanh để điều trị côn trùng cắn cho trẻ em và trẻ sơ sinh:
@@ -14,7 +16,6 @@ Phương pháp 2: Vắt lấy ít nước cốt chanh rồi nhỏ vào vết c�
 
 Phương pháp 3: Trộn nước chanh với ít lá húng quế đã nghiền nát và đắp vào các vùng da bị ảnh hưởng.
 
-![ten buc hinh](http://imgs.vietnamnet.vn/Images/2017/09/28/13/20170928130453-chua-vet-thuong-con-trung-can-1.jpg "ten buc hinh")
 
 
 **2. Tỏi**
